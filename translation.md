@@ -10,10 +10,10 @@
 Since the opening and reforming policy was carried out, Chinese enterprises have been in great efforts to cooperate with overseas counterparts, which has come a long way. Overseas enterprises not only galvanize the growth of Chinese ones, but also gain a lot of benefits. Chinese government will continuously offer business-friendly policies and conditions for promote the further cooperation between enterprises home and abroad. 
 
 语块：
-* carry out：执行
-* be in efforts to：努力做某事
-* come a long way：取得很大的进展
-* home and abroad：国内外
+1. carry out：执行
+2. be in efforts to：努力做某事
+3. come a long way：取得很大的进展
+4. home and abroad：国内外
 
 ## 6月12日翻译作业
 > 朝气蓬勃，充满活力，丰富多彩的上海市现代中国的缩影。 
@@ -29,7 +29,7 @@ Shanghai is a mega city full of vigor and energy, mirroring the modern look of C
 
 语块：
 1.	mega city：大都市
-2.	…, mirroring…：…折射出…
+2. …, mirroring…：…折射出…
 3.	be derived from：来源于
 4.	earn a reputation as：赢得了一个…的名声
 5.	historic spot：有历史意义的地点
