@@ -28,7 +28,7 @@ Since the opening and reforming policy was carried out, Chinese enterprises have
 Shanghai is a mega city full of vigor and energy, mirroring the modern look of China. The infinite charm of Shanghai is derived from its overwhelming skyline and distinct architectures. Today’s Shanghai has earned a reputation as the world-famous metropolis. Walking through this ever-changing modern city, you will discover plenty of remarkable historic spots joining together to denote the vicissitudes of Shanghai hidden behind all of those skyscrapers. 
 
 语块：
-1.	mega city：大都市
+1.  mega city：大都市
 2. …, mirroring…：…折射出…
 3.	be derived from：来源于
 4.	earn a reputation as：赢得了一个…的名声
