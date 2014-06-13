@@ -34,3 +34,11 @@ Shanghai is a mega city full of vigor and energy, mirroring the modern look of C
 4.	earn a reputation as：赢得了一个…的名声
 5.	historic spot：有历史意义的地点
 6.	the vicissitudes of：…的变迁
+
+## 6月13日翻译作业：
+> 吸烟之危害，可谓大矣，其严重性是不能低估的。
+吸烟污染空气，损害健康，使肺癌发病率大大增加。
+为了使各国人民关注烟草的盛行及预防吸烟导致的疾病和死亡，世界卫生组织已将每年的5月31日定为“世界无烟日”。
+戒烟贵在坚持，坚持下去就是收获。
+
+### My answer:
