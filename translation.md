@@ -42,3 +42,27 @@ Shanghai is a mega city full of vigor and energy, mirroring the modern look of C
 戒烟贵在坚持，坚持下去就是收获。
 
 ### My answer:
+The harmness of smoking is so great that we can not underestimate its detriment. Smoking pollutes air, does harm to our health, and increases the risks of lung cencer. In order to attract the global to take an attention to cigarette and prevent diseases and death caused by smoking, the day 31th, May was made as "World No Tobacco" by World Heath Organization. Giving up smoking needs persistence, and only persistence can lead you to a success.
+
+### 侃哥Kevin版本:
+We cannot emphasize the danger of smoking too much. Smoking pollutes the air and endangers the health, increasing the risk of lung cancer. In order to arouse people’s awareness of the universality of tobaccos as well as the diseases and death caused by smoking, WHO has declared May 31 as the “Smoke-free Day”. Persistence plays a key role in quitting smoking, which leads to a success. 
+
+语块：
+1.	We cannot emphasize… too much. 我们再怎么强调…也不为过。
+2.	increase the risk of…：增加…的风险
+3.	…play a key role in…：…在…起了关键作用
+
+## 6月14日翻译作业：
+> 如今，巴西正在经历社会转型，前所未有的变化，让普通民众感到不安，而他们应对这种焦略，最聪明的方法，就是借世界杯这个舞台，公开向政府喊出自己的声音，因为他们知道有时候转型需要由外而内完成。
+
+### My answer:
+Today, Brazil is going through the social transmition time. The change which never happened before, makes the public anxiety. The smartest way to deal with that anxiety, is to make their voice heard by the government publicly,through the stage of the FIFA World Cup, beacuse they are aware that transition should be accomplished from outside.
+
+### 侃哥Kevin版本:
+Today, Brazil is going through an unprecedented social transformation, making civilians uneasy. The smartest way to combat this anxiety is by virtue of world cup with which the civilians can make their voice heard by the government, because they know that sometimes the driving force to accomplish this transformation should come from outside.
+
+语块：
+1.	go through：经历
+2.	by virtue of：经由
+3.	make one’s voice heard：发出某人的声音
+4.	driving force：推动力
