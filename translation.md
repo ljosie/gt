@@ -66,3 +66,8 @@ Today, Brazil is going through an unprecedented social transformation, making ci
 2.	by virtue of：经由
 3.	make one’s voice heard：发出某人的声音
 4.	driving force：推动力
+
+## 6月15日翻译作业：
+> 在我们这个时代，互联网是推手，让越来越多的阴谋论患者找到同好，让一切事件都有了幕后黑手和处心积虑。只要真相的复杂性超出了一些人的理解能力，阴谋论就永远有市场存在。
+
+### My answer:
