@@ -71,8 +71,25 @@ Today, Brazil is going through an unprecedented social transformation, making ci
 > 在我们这个时代，互联网是推手，让越来越多的阴谋论患者找到同好，让一切事件都有了幕后黑手和处心积虑。只要真相的复杂性超出了一些人的理解能力，阴谋论就永远有市场存在。
 
 ### My answer:
+In our age,  Internet is the psusher, which makes more and more conspiracism have the same hobby that makes everything deliberately in back stage. Once the complexity of the truth beyond some people's understanding, conspiracism will have the market forever.
+
+### 侃哥Kevin版本:
+Our age witness the thrusting force of the Internet that is the embryo of conspiracy theorists and masterminds for every issue. If the complexity of the truth goes beyond some people's comprehansive ability, there is always a condition to make conspiracy come about.
+语块：
+1. thrusting force 推力
+2. the embryo of ...是...的温床
+3. go beyond 超出
+4. comprehensive ability 理解力
+5. come about 出现
 
 ## 6月16日翻译作业：
 > 越来越多受英文教育的海外华人父母，已经认识到孩子在掌握不可或缺的英文的同时，也通晓中文的重要性。中国的崛起，让他们充分认识到孩子掌握双语的好处——既能增加他们的就业机会，也能让他们接触和熟悉东西方两种不同的文化。
 
 ### My answer:
+
+
+## 6月17日翻译作业：
+> 在这个信息时代，世界已缩小成一个地球村。这个地球村里，不再有什么泾渭分明的东方世界和西方世界，我们是生活在同一个社区里的邻里。 因此，我们彼此之间无须冲突。我们之间的关系应该是一种友好合作，平等互补的关系。
+
+### My answer:
+
